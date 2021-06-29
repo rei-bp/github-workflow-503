@@ -14,4 +14,4 @@ lets get things started! - Rei
 
 ![pom puppy](https://thehappypuppysite.com/wp-content/uploads/2018/07/white-pomeranian-long-1024x555.jpg) - ellie
 
-
+![red panda](https://wildwnc.org/wp-content/uploads/elementor/thumbs/Leafa-6t04-ox9c8n3aqcna0jrjfl3s3th6yl5pbd65zhb58vpjja.jpg) - rei
